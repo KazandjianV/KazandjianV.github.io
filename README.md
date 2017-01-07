@@ -1,1 +1,1 @@
-# Suck it Georgie
+# Vahan Kazandjian
